@@ -1,4 +1,4 @@
-## Hi 👋. Im Marcellus, a professional data analyst
+## Hi 👋, Im Marcellus Riverz.
 
 <!-- [Linkedin Profile]: www.linkedin.com/in/marcellus-riverz >
 <!-- [Resume]: https://docs.google.com/document/d/1CDSKN9bQ58D1h6PWVxec0L-ojDmJNkT8qg6S7qYPv74/edit?usp=sharing >
